@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **pradyumna7541@gmail.com** For Collaboration/Project or An
 <!-- - 👯 **I’m looking to collaborate on:** Face Recognition with Attendance system using AI
 - 🤔 **I’m looking for help with:** Face Recognition with Attendance system using AI
 - 💬 **Ask me about:** Collaboration, Tech Support -->
-- 📫 **How to reach me:** Enter your email here
+- 📫 **How to reach me:** pradyumna7541@gmail.com
 - 😄 **Pronouns:** Pd
 - ⚡ **Fun fact:** I Love Tech and Tech should also
 
